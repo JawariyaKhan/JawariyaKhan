@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... video editing
 - 🌱 I’m currently learning ... video editing
 - 💞️ I’m looking to collaborate on ... video editing
-- 📫 How to reach me ... throught my email jkhancreative6@gmail.com
+- 📫 How to reach me ... through my email jkhancreative6@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
